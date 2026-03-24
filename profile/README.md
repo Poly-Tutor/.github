@@ -1,6 +1,5 @@
 ## 
-<img width="543" height="295" alt="banner" src="https://github.com/user-attachments/assets/45682a03-f478-4e04-b597-4f959d0961b0" />
-
+![qv8f7](https://github.com/user-attachments/assets/6d72c0a1-6444-4041-979d-0e0fa4e42f5d)
 
 
 
